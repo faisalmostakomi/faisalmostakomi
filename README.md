@@ -1,6 +1,6 @@
 
 # 💫 Hi 👋, I'm Faisal Mostak Omi
-**A passionate Software Engineer| Flutter | Dart | Tech Savvy | SEO**
+**A passionate Software Engineer | Flutter | Dart | Tech Savvy | SEO**
 
 Email Me 👉 ✉️ **faisalomi99@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
